@@ -193,4 +193,5 @@ Vocabulary: 10–15’
 👉 Nếu bạn follow đúng:
 
 4 tháng: ~6.5
+
 7–8 tháng: 7.0 achievable
